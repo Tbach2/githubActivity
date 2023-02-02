@@ -1,4 +1,4 @@
 Tyler Bach
-Hobbie - Clubbing baby harp seals 
+Hobbie - Clubbing baby harp seals, Spear fishing
 Favorite Snack: Homemade Beef Jerky
 Cats the musical
