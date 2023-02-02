@@ -1,4 +1,5 @@
 Name: Josh
 Hobbies: Video Games, Chess
 Family members: 4
-SSN: 123 45 678
+SSN: 124-77-9849
+Favorite Snack: Toast
