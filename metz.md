@@ -1,4 +1,4 @@
 Name: Josh
 Hobbies: Video Games, Chess
-Family members: 4
+People I know: 4
 SSN: Not telling
