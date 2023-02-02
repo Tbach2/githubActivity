@@ -1,2 +1,5 @@
 Justin Hidalgo
-Drinking 
+Drinking Soda and watching TV
+Whale fishing
+Baywatch
+Drinking
